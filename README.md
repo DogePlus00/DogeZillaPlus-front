@@ -20,7 +20,7 @@
 ✅ Live on PancakeSwap
 
 🌏 Website: https://dogezillaplus.com
-🏧 Telegram Group: @DogeZillaPlus
+🏧 Telegram Group: @DogeZillaPlusGroup
 📣 Twitter: https://twitter.com/DogeZillaPlus
 
 
