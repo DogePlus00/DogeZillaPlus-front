@@ -21,6 +21,6 @@
 
 🌏 Website: https://dogezillaplus.com
 🏧 Telegram Group: @DogeZillaPlusGroup
-📣 Twitter: https://twitter.com/DogeZillaPlus
+🐦 Twitter: https://twitter.com/DogeZillaPlus
 
 
